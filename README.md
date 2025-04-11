@@ -131,3 +131,11 @@ Sprich 1000 Person in 24h ca. 3.328.300,00€<br>
 Das ist Realer Fakt so wie dargelegt, und Entspricht einer Hochrechnung auf den Faktor 1000 Personen, die bei <br>
 verbreitung Definitiv Realistisch sein könnten.<br>
 <br>
+
+
+Sry the Real Security Gap as POC i cant make show you, than its not Fixable and iam the One with BKA and BSI that know this POC, what i have shown them in 2 Test Sections without a punishment by BKA, and i have preffer to Feel me Good to Secure Them all as a Action of Prevention, and when iam tell a Part of them i become view Specials for my one Personaly use, YEEEAAAHHHYYYYY.
+
+Nice Try and over 13Years old , also have exist and Uncoverd before 13 Years from my Experiments. 
+
+MFG
+Steven
